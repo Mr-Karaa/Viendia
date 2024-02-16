@@ -1,3 +1,3 @@
 # Viendia
 ikili
-bu proje psurwer ve lawendrusa aittir
+bu proje psurwer ve Kara Bey'e aittir
